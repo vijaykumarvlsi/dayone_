@@ -1,6 +1,6 @@
 #wish
 
-Name:Shashank.M.Yarazari
-Name:Shrinivas.G.Habbu
+Name:Ritika patil
+Name:Sai Smruti 
 
-Happy deepavali sir.
+Good evening sir
